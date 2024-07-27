@@ -1,1 +1,1 @@
-# JPMorgan-Chase-Co-ONLINE-INTERNSHIP
+# JPMorgan-Chase & Co-ONLINE-INTERNSHIP
